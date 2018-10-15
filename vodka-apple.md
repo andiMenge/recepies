@@ -1,5 +1,5 @@
 # Vodka Apple
 
-- 4cl Grasovka Vodka
+- 4cl Grasovka vodka
 - fill up with apple cider
-- *garnish:* Apple Slice
+- *garnish:* apple slice
