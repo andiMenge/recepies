@@ -2,4 +2,4 @@
 
 - 4cl Grasovka vodka
 - fill up with apple cider
-- **garnish** apple slice
+- **garnish:** apple slice
