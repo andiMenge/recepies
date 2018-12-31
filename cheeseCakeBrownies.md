@@ -28,7 +28,7 @@ Combine cream cheese with 1/4 cup white sugar and 1 egg in a mixing bowl; beat u
 
 3. Combine CheeseCake Mix and Brownie Mix. Swirl cheesecake mix into brownie mix.
 
-4. Bake in preheated oven for 25 to 30 minutes. Do not overcook.
+4. Bake in preheated oven for 25 minutes.
 
 ## Sources
 
