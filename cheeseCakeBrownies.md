@@ -4,6 +4,7 @@
 
 - 1 package cream cheese (ca. 230g)
 - 3 Eggs
+- Lemon chest
 - 1/2 cup butter
 - 1/4 cup white sugar
 - 3/4 cup brown suger
@@ -18,7 +19,7 @@
 
 ### Cheese Cake Topping
 
-Combine cream cheese with 1/4 cup white sugar and 1 egg in a mixing bowl; beat until smooth. Stir 1 cup chocolate chips into the cream cheese mixture.
+Combine cream cheese with 1/4 cup white sugar, 1 egg and lemon chest in a mixing bowl. beat until smooth.
 
 ### Brownies
 
