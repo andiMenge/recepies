@@ -2,11 +2,17 @@
 
 ## Ingredients
 
+### Cheese Cake Topping
+
+- 1 Egg
 - 1 package cream cheese (ca. 230g)
-- 3 Eggs
-- Lemon chest
-- 1/2 cup butter
 - 1/4 cup white sugar
+- Lemon chest
+
+### Brownies
+
+- 2 Eggs
+- 1/2 cup butter
 - 3/4 cup brown suger
 - 1 teaspoon vanilla extract
 - 1/3 cup unsweetened cocoa powder
