@@ -19,7 +19,7 @@
 - 1/2 cup all-purpose flour
 - 1/4 teaspoon salt
 - 1/4 teaspoon baking powder
-- 1 block ground chocolate (dark or white)
+- 1 block ground white chocolate
 
 ## Instructions
 
