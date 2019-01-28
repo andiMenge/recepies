@@ -5,7 +5,7 @@
 ### Cheese Cake Topping
 
 - 1 Egg
-- 1 package cream cheese (ca. 230g)
+- 1 package cream cheese (~230g)
 - 1/4 cup white sugar
 - Lemon chest
 
